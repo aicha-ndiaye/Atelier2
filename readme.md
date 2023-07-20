@@ -1,0 +1,1 @@
+notre groupe est compose de 5 personnes dont 2 filles et 3 garcons adama gueye sacre ntandou mouhamed faye , saifoulaye diallo et moi ; , gentils , courtois , travailleurs et ont le sens de l'ecoute  mois qui suis debutante ils m'aident et repondre a toutes mes questions pour que je m'y trouve merci beaucoup a vous 
